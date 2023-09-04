@@ -19,7 +19,7 @@ I'm a **Fraud Analyst** passionate about fintech, cyber security, and risk manag
 
 ## 🤝 Let's Connect!
 
-Feel free to drop me a message or check out my other projects:
+Feel free to drop me a message!
 
 - 🌐 [LinkedIn](https://linkedin.com/in/nathaniel-pas)
 
